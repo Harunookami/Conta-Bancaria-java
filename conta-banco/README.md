@@ -28,4 +28,4 @@ Licença
 Público
 
 Autor
-Alexandre Mieli Poletini - Almini.Dev - www.linkedin.com/in/alminidesign
+Rafaela Chagas - Harunookami - [www.linkedin.com/in/rafaela-chagas-387567149/]
